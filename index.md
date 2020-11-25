@@ -7,6 +7,8 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 ---
 ---
 ***Puedes consultar todas mis tallas [aquí]() (Todavía no funciona)***
+---
+---
 
 ## Cositas que me gustan: 
 
@@ -34,7 +36,6 @@ A ver... se que hay cosas un poco caras, pero claro, si fueran baratas me las ha
 Puedes verlo [aquí](https://www.sephora.es/marcas/marcas-de-a-z/natasha-denona-denon/)
 
 🔷   Corrector Shape Tape - Tarte TONO ***29N-light-medium***
-
 Puedes verlo [aquí](https://www.sephora.es/p/shape-tape-contour-concealer---corrector-antiojeras-P3643138.html)
 
 🔷   Base de Maquillaje Stay Naked TONO ***40-WY***
@@ -52,8 +53,28 @@ Puedes verlo [aquí](https://www.sephora.es/p/all-nighter-pack---kit-494981.html
 🔷  Polvos Sueltos Peachy Perfect TONO ***sin nombre -> no confundir con el marrón :)***
 Puedes verlo [aquí](https://www.sephora.es/p/peach-perfect-loose-powder---polvos-sueltos-P3220047.html)
 
-🔷     
 
 ### Cremas y cosas de cuidarse 💅🏻
 
+🔷   Kit tratamiento Mario Badescu
+Puedes verlo [aquí](https://www.sephora.es/p/grab-and-go---kit-de-tratamiento-piel-perfecta-475756.html)
 
+🔷     Estuche (set) de The Ordinary para la piel 
+Puedes verlo [aquí](https://www.sephora.es/p/balance-set----cofre-edicion-navidad-536032.html)
+
+🔷     Serum The Ordinary HIdratante
+Puedes verlo [aquí](https://www.sephora.es/p/%C3%A1cido-hialuronico-2-%25-b5---serum-hidratante-502440.html)
+
+🔷     Fórmula de Peeling hidratante 
+Puedes verlo [aquí](https://www.sephora.es/p/%C3%A1cido-l%C3%A1ctico-10-%25-ha---formula-de-peeling-502441.html)
+
+🔷     Contorno de ojos The inkey list
+Puedes verlo [aquí](https://www.sephora.es/p/retinol-eye-cream---crema-contorno-505421.html)
+
+***En las cosas de Clinique si pones el código IERABF te hace 45% de descuento***
+
+🔷     Gel limpiador Clinique
+Puedes verlo [aquí](https://www.clinique.es/product/1668/29793/cuidado-de-la-piel/granos/anti-blemish-solutionstm-tratamiento-clinico-para-piel-con-granos-en-gel?size=30_ml)
+
+🔷     Loción Clarificante Clinique
+Puedes verlo [aquí](https://www.clinique.es/product/1573/15502/3-pasos/paso-2-exfoliar/locion-clarificante-2-piel-mixta?size=400_ml)
