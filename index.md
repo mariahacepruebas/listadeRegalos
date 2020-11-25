@@ -27,6 +27,8 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 ### Ropa 👗
 He hecho una sección con ropa para que esté más organizado 
 
+***La talla siempre la más pequeña***
+
 ## Chandals para ~~NO~~  hacer deporte :)
 
 #### chandal 1: 
