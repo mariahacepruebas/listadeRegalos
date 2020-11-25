@@ -27,6 +27,18 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 ### Ropa 👗
 He hecho una sección con ropa para que esté más organizado 
 
+## Chandals para ~~NO~~  hacer deporte :)
+
+#### chandal 1: 
+
+[sudadera](https://www.zara.com/es/es/sudadera-b%C3%A1sica-p01660802.html?v1=57841128&v2=1549515#selectedColor=500&origin=shopcart) y [pantalón](https://www.zara.com/es/es/pantal%C3%B3n-jogger-felpa-p01660807.html?v1=67268088&v2=1549515#selectedColor=500&origin=shopcart)
+    ¡¡¡ Me gustan también en malva y en blanco roto, pero no iba a poner repetidos los enlaces !!!
+    
+#### chandal 2:
+
+[sudadera](https://www.zara.com/es/es/sudadera-capucha-p01058626.html?v1=56161187&v2=1549515) y [pantalón](https://www.zara.com/es/es/pantal%C3%B3n-jogger-p05039997.html?v1=71538919&v2=1549515#selectedColor=711&origin=shopcart)
+    ¡¡¡ Este me gusta en ese color y en verde y en negro !!!
+
 ### Maquillaje 💄
 Al igual que con la ropa he hecho una sección con cosas de maquillaje.
 
