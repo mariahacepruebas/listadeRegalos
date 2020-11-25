@@ -2,7 +2,7 @@
 
 Lo pongo así para que pueda actualizarlo si quiero poner algo más o quitar algo :)
 
-Y si me hacéis algún regalo ... muchas gracias :heart:
+Y si me hacéis algún regalo ... muchas gracias ❤️
 
 ---
 ---
@@ -57,6 +57,6 @@ Puedes verlo [aquí](https://www.sephora.es/p/peach-perfect-loose-powder---polvo
 :small_blue_diamond:       
 :small_blue_diamond:       
 
-### Cremas y cosas de cuidarse :nail_care:
+### Cremas y cosas de cuidarse 
 
 
