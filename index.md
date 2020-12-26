@@ -31,11 +31,31 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
   
 🔷    Alexa : 
   Puedes verlo [aquí](https://www.amazon.es/nuevo-echo-dot-4a-generacion-altavoz-inteligente-con-alexa-blanco/dp/B084J4MZK6/ref=mp_s_a_1_2?dchild=1&keywords=alexa&qid=1604267178&sr=8-2&th=1&psc=1)
+ 
+🔷   Pestañas postizas - Ardell
+Puedes verlo [aquí](https://www.primor.eu/ardell/43272-wispies-pestanas-postizas-baby-demi.html?q=%2Fardell%2F43272-wispies-pestanas-postizas-baby-demi-074764615138.html)
+
+### Gafas de Sol
+
+No hay ninguna que quiera en concreto, me da igual la marca y eso, pongo estas para que sirvan de referencia, en resumen las quiero:
+- marrones oscuras / negras
+- Con la pasta gorda
+- En forma de gato o cuadrada
+
+🔷   Gafas de sol cuadrada - Vogue
+Puedes verlo [aquí](https://www.zalando.es/vogue-eyewear-gafas-de-sol-black-1vg51k044-q11.html)
+
+🔷   Gafas de sol en forma cuadrada - Polaroid
+Puedes verlo [aquí](https://es.polaroideyewear.com/products/201020086la)
+
+🔷   Gafas de sol en forma de ojos de gato de mujer - Vogue
+Puedes verlo [aquí](https://www.zalando.es/vogue-eyewear-gafas-de-sol-dark-havana-1vg51k03q-o11.html)
+
+🔷   Gafas de sol en forma de ojos de gato de mujer - Polaroid
+Puedes verlo [aquí](https://es.polaroideyewear.com/products/202915807m9)
   
 ### Ropa 👗
 He hecho una sección con ropa para que esté más organizado 
-
-***La talla siempre la más pequeña***
 
 🔷   Abrigo bonito y que me viene bien (Abrigo puffy capucha NEGRO) - Bershka
 Puedes verlo [aquí](https://www.bershka.com/es/abrigo-puffy-capucha-c0p102444593.html?colorId=800)
