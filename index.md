@@ -6,7 +6,7 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 
 ---
 ---
-***Puedes consultar todas mis tallas [aquí]() (Todavía no funciona)***
+***Puedes consultar todas mis tallas [aquí](https://github.com/mariahacepruebas/listadeRegalos/blob/gh-pages/tallas.md)***
 ---
 ---
 
