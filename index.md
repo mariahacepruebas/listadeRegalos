@@ -12,6 +12,9 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 
 ## Cositas que me gustan: 
 
+🔷   set cristales pequeñitos para manualidades / uñas / maquillaje no sé 
+  Puedes verlas [aquí](https://www.amazon.es/Biutee-Diamantes-Decoracion-Decorativas-Selector/dp/B07JDFSHYX/ref=sr_1_20?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=set+cristales+maquillaje&qid=1608501262&sr=8-20)
+
 🔷   Zapatillas 👟 Nike blazer mid en 35,5.
   Puedes verlas [aquí](https://m.zalando.es/nike-sportswear-nike-blazer-mid-77-unisex-zapatillas-altas-wolf-greywhiteblacktotal-orange-ni114d0h3-c11.html)
 
@@ -28,6 +31,15 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 He hecho una sección con ropa para que esté más organizado 
 
 ***La talla siempre la más pequeña***
+
+🔷   Abrigo bonito y que me viene bien (Abrigo puffy capucha NEGRO) - Bershka
+Puedes verlo [aquí](https://www.bershka.com/es/abrigo-puffy-capucha-c0p102444593.html?colorId=800)
+
+🔷   Pantalones súper cómodos (Wide Leg) - Bershka
+Puedes verlo [aquí](https://www.bershka.com/es/pantal%C3%B3n-wide-leg-c0p102737981.html?colorId=892)
+
+🔷   conjunto para estar por casa rosita ( (Wide Leg) - ASOS
+Puedes verlo [aquí](https://www.asos.com/es/new-look-petite/conjunto-rosa-de-canale-con-top-y-pantalones-de-new-look-petite/prd/21742602?clr=rosa&colourwayid=60219173&SearchQuery=top%20y%20pantalon)
 
 ## Chandals para ~~NO~~  hacer deporte :)
 
@@ -84,11 +96,3 @@ Puedes verlo [aquí](https://www.sephora.es/p/%C3%A1cido-l%C3%A1ctico-10-%25-ha-
 
 🔷     Contorno de ojos The inkey list
 Puedes verlo [aquí](https://www.sephora.es/p/retinol-eye-cream---crema-contorno-505421.html)
-
-***En las cosas de Clinique si pones el código IERABF te hace 45% de descuento***
-
-🔷     Gel limpiador Clinique
-Puedes verlo [aquí](https://www.clinique.es/product/1668/29793/cuidado-de-la-piel/granos/anti-blemish-solutionstm-tratamiento-clinico-para-piel-con-granos-en-gel?size=30_ml)
-
-🔷     Loción Clarificante Clinique
-Puedes verlo [aquí](https://www.clinique.es/product/1573/15502/3-pasos/paso-2-exfoliar/locion-clarificante-2-piel-mixta?size=400_ml)
