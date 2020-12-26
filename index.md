@@ -6,17 +6,22 @@ Y si me hacéis algún regalo ... muchas gracias ❤️
 
 ---
 ---
-***Puedes consultar todas mis tallas [aquí](https://github.com/mariahacepruebas/listadeRegalos/blob/gh-pages/tallas.md)***
+## MIS TALLAS:
+
+| PRODUCTO | TALLA | 
+| --- | --- |
+| Ropa Parte de arriba | XS - Si no es hay pues S|
+| Ropa Parte de abajo | 32-34 |
+| Zapatos | Lo ideal es 35.5 pero puede varian en 35-36 depende del tipo |
+| Anillos | Talla 7 (tengo los dedos MUY PEQUEÑOS)|
+
 ---
 ---
 
 ## Cositas que me gustan: 
 
-🔷   set cristales pequeñitos para manualidades / uñas / maquillaje no sé 
+🔷   Set cristales pequeñitos para manualidades / uñas / maquillaje no sé.
   Puedes verlas [aquí](https://www.amazon.es/Biutee-Diamantes-Decoracion-Decorativas-Selector/dp/B07JDFSHYX/ref=sr_1_20?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=set+cristales+maquillaje&qid=1608501262&sr=8-20)
-
-🔷   Zapatillas 👟 Nike blazer mid en 35,5.
-  Puedes verlas [aquí](https://m.zalando.es/nike-sportswear-nike-blazer-mid-77-unisex-zapatillas-altas-wolf-greywhiteblacktotal-orange-ni114d0h3-c11.html)
 
 🔷   Tiras led para la tele.
    Puedes verlas [aquí](https://www.amazon.es/gp/aw/d/B086YFWZGS/ref=sspa_mw_detail_0?ie=UTF8&psc=)
@@ -58,12 +63,6 @@ Al igual que con la ropa he hecho una sección con cosas de maquillaje.
 
 A ver... se que hay cosas un poco caras, pero claro, si fueran baratas me las habría comprado yo ya jajajajaj
 
-🔷   Sombras de ojos 👁️ Natasha Denona - Mini Zendo
-Puedes verlo [aquí](https://www.sephora.es/marcas/marcas-de-a-z/natasha-denona-denon/)
-
-🔷   Corrector Shape Tape - Tarte TONO ***29N-light-medium***
-Puedes verlo [aquí](https://www.sephora.es/p/shape-tape-contour-concealer---corrector-antiojeras-P3643138.html)
-
 🔷   Base de Maquillaje Stay Naked TONO ***40-WY***
 Puedes verlo [aquí](https://www.sephora.es/p/stay-naked-foundation---base-de-maquillaje-P3799010.html)
 
@@ -73,17 +72,7 @@ Puedes verlo [aquí](https://www.sephora.es/p/vanish-seamless-finish-liquid-foun
 🔷   Estuche de labios 👄 de Charlotte Tilbury
 Puedes verlo [aquí](https://www.sephora.es/p/pillow-talk-lip-secrets---estuche-de-navidad-530174.html)
 
-🔷  Fijador All Nighter (Este es un pack pero que hay en muchos tamaños)
-Puedes verlo [aquí](https://www.sephora.es/p/all-nighter-pack---kit-494981.html)
-
-🔷  Polvos Sueltos Peachy Perfect TONO ***sin nombre -> no confundir con el marrón :)***
-Puedes verlo [aquí](https://www.sephora.es/p/peach-perfect-loose-powder---polvos-sueltos-P3220047.html)
-
-
 ### Cremas y cosas de cuidarse 💅🏻
-
-🔷   Kit tratamiento Mario Badescu
-Puedes verlo [aquí](https://www.sephora.es/p/grab-and-go---kit-de-tratamiento-piel-perfecta-475756.html)
 
 🔷     Estuche (set) de The Ordinary para la piel 
 Puedes verlo [aquí](https://www.sephora.es/p/balance-set----cofre-edicion-navidad-536032.html)
